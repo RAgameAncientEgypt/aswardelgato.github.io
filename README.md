@@ -13,7 +13,7 @@
 </p>
   
 <p>
-  Como mis creadores tambien tengo una bonita historia detras que aberiguareis en el juego, pero venimos a hablar de esa hitoria ahora, sino de como van     los avances del juego. La verdad no soy el jugador numero uno, ni tampoco un programador ni guionista. En mi epoca no existia nada por el estilo, no       teniamos ni ordenador, pero hay algo que si podia hacer sobre el papiro o las dunas del sahara o incluso el barro de las orillas del nilo, dibujar. Por     eso esta web sera en la que apareceran los dibujos de mi dueño, mios y otros personajes de mi historia.
+  Como mis creadores tambien tengo una bonita historia detras que aberiguareis en el juego, pero no venimos a hablar de esa hitoria ahora, sino de como van     los avances del juego. La verdad no soy el jugador numero uno, ni tampoco un programador ni guionista. En mi epoca no existia nada por el estilo, no       teniamos ni ordenador, pero hay algo que si podia hacer sobre el papiro o las dunas del sahara o incluso el barro de las orillas del nilo, dibujar. Por     eso esta web sera en la que apareceran los dibujos de mi dueño, mios y otros personajes de mi historia.
 </p>
   
   
